@@ -17,4 +17,4 @@ Doctor Login
 https://github.com/Sanjana-Kondalwade/MediCare/assets/101416479/8c3fd4fa-177c-49b3-86c0-fe1523a4dc11
 
 
-
+𝐄𝐦𝐚𝐢𝐥 : sanjanakondalwade@𝐠𝐦𝐚𝐢𝐥.𝐜𝐨𝐦 𝐋𝐞𝐭 𝐦𝐞 𝐤𝐧𝐨𝐰 𝐢𝐟 𝐢 𝐜𝐚𝐧 𝐚𝐬𝐬𝐢𝐬𝐭 𝐲𝐨𝐮 𝐰𝐢𝐭𝐡 𝐟𝐥𝐮𝐭𝐭𝐞𝐫 𝐝𝐞𝐯𝐞𝐥𝐨𝐩𝐦𝐞𝐧𝐭.
